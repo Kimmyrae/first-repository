@@ -1,4 +1,6 @@
 THE FINE DARK LINES
+----------
+
 we are all just
 
 barely washed hair
@@ -52,3 +54,5 @@ away from a shoot-out.
 ____________________________________________________________________
 
 ©2014 Susan Milchman. Published by Icebox Journal, Spring 2014
+
+http://susanmilchman.com/poems/2014/7/7/the-fine-dark-lines
